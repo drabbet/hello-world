@@ -1,1 +1,1 @@
-# hello-world
+# hello-world newcomer with good intentions of ensuring a bright and prosperous future for all in github and even those looking for information on github because when informed correctly everyone can be beneficial for us as a whole. cracked moon tacos are delicious 
